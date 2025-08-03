@@ -29,6 +29,29 @@ Then attended the lecture of **Chief guest**
 
 **Second guest of honour**
 
-**_ S. Ravinder garg_** He sevices in **Chief Engg. and municipal ccorporation**. Ludhiana
+**_ S. Ravinder garg_** He sevices in **Chief Engg. and municipal ccorporation**Ludhiana.
 
+### Time1:15pm to 4:00pm
+
+Then after listening to all the lecture.We went to our respective department.Their we received complete imformation about all the teacher in our department,and after that , they explained in great detailabout our department. 
+
+
+## Day 2
+
+### Time 9:30am to 10:30am
+In this time, I had given the **English proficiency test** 
+
+### Time 10:30am to 11:30am
+In this time, I hax given the **Math proficiency test**
+
+### Time 11:30am to 12:30 pm 
+It was break time, During this time, I explored the some beautiful places of collage with my friend
+
+### Time 12:30pm to 1:30pm
+During this time, we listening the **Dr. Arshdeep Singh's lecture** in auditorium.
+Sir told us that we should eat food properly. if we don't eat meals properly. so,our body suffered from many diseases. 
+
+### Time 1:30pm to 2:30pm
+In this time, we listening the **Dr. Priya Darshni Mam's lecture** in auditorium.
+Mam told us how to maintain and balance the right understanding, physical facility and relationship.
 
