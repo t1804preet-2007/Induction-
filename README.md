@@ -4,7 +4,7 @@ Branch Information Technology 1st year
 ## Day1
 ### Time 8:30am to 10:30am
 **GURUDWARA SAHIB** The first time, I am visited the gurudwara sahib.
-It was truly a peaceful experience.As I stepped inside it was welcomed by the calming sound of gurbani
+It was truly a peaceful experience.As I stepped inside it was welcomed by the calming sound of gurbani and the sweet fragrance of incense.The atmosphere was very serene and I immeediately felt a sense of calmness and positivity.I sat quietlyand listened to the hymns whicb brought peace of mind. It was heartwarming to see students and staff setting together with respect and devotion. That visit made me feel more connected my culture and gave me a spri
 The sound of kirtan was touch my heart and the
 atmosphere was filled with devotion.
 [img](![20250https://github.com/user-attachments/assets/b67fd052-98f5-4f8a-8c60-214c134b7f00731_100515]()README.md)
