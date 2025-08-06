@@ -2,6 +2,7 @@
 Name Taranpreet Kaur.      
 Branch Information Technology 1st year 
 ## Day1
+## Date 31th july 2025
 ### Time 8:30am to 10:30am
 **GURUDWARA SAHIB** The first time, I am visited the gurudwara sahib.
 It was truly a peaceful experience.As I stepped inside it was welcomed by the calming sound of gurbani and the sweet fragrance of incense.The atmosphere was very serene and I immeediately felt a sense of calmness and positivity.I sat quietlyand listened to the hymns whicb brought peace of mind. It was heartwarming to see students and staff setting together with respect and devotion. That visit made me feel more connected my culture and gave me a spiritual start to my collage journey.
@@ -11,7 +12,7 @@ It was truly a peaceful experience.As I stepped inside it was welcomed by the ca
 
 **AUDITORIUM** The first time,I am visited the auditorium of my collage.It was trulg impressed by its size and design.As I entered, I saw a large stage with bright lights and a sound system that made the whole space feel professional and grand. The seating arrangement was well organizedand the atmosphere full of exietment.anx curiosity.It was during a induction program,so the hall was filled with students and teachers. I felt a mix of nervousness and joy while attending my first event.It became my special memory of my first day in my collage.
 
-The first lecture was by **Taranpreet Kaur**. She is my senior. She introduced all the professor one by one 
+During the first session was taken by **Taranpreet Kaur**,a senior student  took the responsibility of informative and helpful session. The senior began by warmly welcoming us and sharing a few words about collage life. Then one by one 
 
 The second lecture was by **HOD OF APPLIED SCIENCE** **_Harpreet Mam_**
 she tell us the **power of P**
