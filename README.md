@@ -9,7 +9,7 @@ It was truly a peaceful experience.As I stepped inside it was welcomed by the ca
 
 ### Time 11:00 am to 1:15pm
 
-**AUDITORIUM** In this time, I am visited the auditorium. I felt very nervous. It was my first time attending the profesdors lecture.
+**AUDITORIUM** The first time,I am visited the auditorium of my collage.It was trulg impressed by its size and design.As I entered, I saw a large stage with bright lights and a sound system that made the whole space feel professional and grand. The seating arrangement was well organizedand the atmosphere full of exietment.anx curiosity.It was during a induction program,so the hall was filled with students and teachers. I felt a mix of nervousness and joy while attending my first event.It became my special memory of my first day in my collage.
 
 The first lecture was by **Taranpreet Kaur**. She is my senior. She introduced all the professor one by one 
 
