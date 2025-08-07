@@ -49,7 +49,41 @@ It was break time, During this time, I explored the some beautiful places of col
 During this time, we listening the **Dr. Arshdeep Singh's lecture** in auditorium.
 Sir told us that we should eat healthy food properly. in this food we have very rich in essential nutrient,vitamin,and minerals,high fiber and less add sugar. its contain healthy fats which is good for our body. if we eat fast food. We are suffered from our disease. Because, this food have low in nutrients,high in calories,low in fiber and lot of sugar. So fast food is not good our health.
 
-### Time 1:30pm to 2:30pm
-In this time, we listening the **Dr. Priya Darshni Mam's lecture** in auditorium.
-Mam told us how to maintain and balance the right understanding, physical facility and relationship.
+### Time 1:30pm to3:30pm
+During this time,we listening the **Mr. Rakesh Kumar**in auditorium.Sir told us about the **satya scholarship**. which is very helpful for our student who faces many difficult problem in our life. so, they can filled that online form and get their many oppounities.In this way they helped many families.
 
+
+## Day 3
+### Date 2 August,2025
+
+### Time 9:00am to 11:00am
+This lecture was taken by **Dr.Jaswindewr Singh**,who is incharge of **IAPT**.This lecture was very intresting for me and my friends.He had a persenol labs on wheels of mathamatics and science.He got many award on state and national level fron govt. He told us many comman facts of science and he teach us math in very intresting way and we enjoyvery much in this lecture.
+
+### Time 11:00pm to 12:00pm
+In this time, we listening the **Dr. Priya Darshni Mam's lecture** in auditorium.
+Mam told us how to maintain and balance the right understanding, physical facility and relationship.She relised us what was the inportant for us.Money ,Familily, job and happiness all was important for us in our life.we couldnot live without all of us.So, we want to mantain all of these in our life.
+
+## Day 4
+### Date 3 August,2025
+
+### Time 8:30am to 9:30pm
+This session was taken by **Causmic Club**. In this session, club members tell us about his club. What they are all doing? What is the role of club in this collage? Which compitition was arranged by this club and Which function was organised by this club.They are all tells about the club members.This session arevery intresting for me.
+
+### Time 9:30am to 10:30pm
+This lecture was taken by **Dr.Randir Singh**.on **conduct of examination.**Sir told us about the exam. How we conduct our exam in our future.He suggested us that we cannnot take any supply in our exam. if we take any supply, so, we face many problems in our life.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+3
