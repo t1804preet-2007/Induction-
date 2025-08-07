@@ -12,43 +12,42 @@ It was truly a peaceful experience.As I stepped inside it was welcomed by the ca
 
 **AUDITORIUM** The first time,I am visited the auditorium of my collage.It was trulg impressed by its size and design.As I entered, I saw a large stage with bright lights and a sound system that made the whole space feel professional and grand. The seating arrangement was well organizedand the atmosphere full of exietment.anx curiosity.It was during a induction program,so the hall was filled with students and teachers. I felt a mix of nervousness and joy while attending my first event.It became my special memory of my first day in my collage.
 
-During the first session was taken by **Taranpreet Kaur**,a senior student  took the responsibility of informative and helpful session. The senior began by warmly welcoming us and sharing a few words about collage life. Then, one by one,they introduce each teacher,mentioning their name,subject and some intresting facts about them.The way of senior spoken was confident and respectful which maxe the session engaging and I apper
+During the first session was taken by **Taranpreet Kaur**,a senior student  took the responsibility of informative and helpful session. The senior began by warmly welcoming us and sharing a few words about collage life. Then, one by one,they introduce each teacher,mentioning their name,subject and some intresting facts about them.The way of senior spoken was confident and respectful which maxe the session engaging and I appreciated the effoet of senior made to guide us in such a friendly ways
 
-The second lecture was by **HOD OF APPLIED SCIENCE** **_Harpreet Mam_**
-she tell us the **power of P**
+The second lecture was taken by **HOD OF APPLIED SCIENCE** **_Harpreet Mam_**
+she told us about the **power of P**.[img]
+She told us that we will have to work with passion.
 
-The third lecture was by **Principal**
-**_Sehijpal Singh_**. He tell us that all branches are equal. you just want to focus on your branch. 
+The third lecture was by **Principal** **_Sehijpal Singh_**. He tell us that all branches are equal. you just want to focus on your branch.There are no limits in head of you,so aim to reach such a levelof excellence that no one can surpass you.
 
 Then attended the lecture of **Chief guest**
 
 **First guest of honour**
-
-**_Engg Rakesh Kumar_**: He is alumni of 1991 batch. Cunnertly, He servics as the APD Ludhiana. 
+**_Engg Rakesh Kumar_**: He is alumni of **1991 batch**. Cunnertly, He servics as the **APD Ludhiana**.
 
 **Second guest of honour**
-
 **_ S. Ravinder garg_** He sevices in **Chief Engg. and municipal ccorporation**Ludhiana.
 
+Both of them shared their life stories with us,which are truly inspired us.They motivated us to embrance the field we are in and make it our own. We must stay focusd and keep progressing in that direction with full dedication.
+
 ### Time1:15pm to 4:00pm
-
-Then after listening to all the lecture.We went to our respective department.Their we received complete imformation about all the teacher in our department,and after that , they explained in great detailabout our department. 
-
+Then after listening to all the lecture.We went to our respective department.Their we received complete imformation about all the teacher in our department,and after that , they explained in great detail about our department. 
 
 ## Day 2
+### 1 August,2025
 
-### Time 9:30am to 10:30am
+### Time 9:00am to 10:00am
 In this time, I had given the **English proficiency test** 
 
-### Time 10:30am to 11:30am
+### Time 10:00am to 11:00am
 In this time, I hax given the **Math proficiency test**
 
-### Time 11:30am to 12:30 pm 
+### Time 11:00am to 12:00 pm 
 It was break time, During this time, I explored the some beautiful places of collage with my friend
 
-### Time 12:30pm to 1:30pm
+### Time 12:00pm to 1:30pm
 During this time, we listening the **Dr. Arshdeep Singh's lecture** in auditorium.
-Sir told us that we should eat food properly. if we don't eat meals properly. so,our body suffered from many diseases. 
+Sir told us that we should eat healthy food properly. in this food we have very rich in essential nutrient,vitamin,and minerals,high fiber and less add sugar. its contain healthy fats which is good for our body. if we eat fast food. We are suffered from our disease. Because, this food have low in nutrients,high in calories,low in fiber and lot of sugar. So fast food is not good our health.
 
 ### Time 1:30pm to 2:30pm
 In this time, we listening the **Dr. Priya Darshni Mam's lecture** in auditorium.
