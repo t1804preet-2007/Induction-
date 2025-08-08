@@ -10,7 +10,8 @@ It was truly a peaceful experience.As I stepped inside it was welcomed by the ca
 
 ### Time 11:00 am to 1:15pm
 
-**AUDITORIUM** The first time,I am visited the auditorium of my collage.It was trulg impressed by its size and design.As I entered, I saw a large stage with bright lights and a sound system that made the whole space feel professional and grand. The seating arrangement was well organizedand the atmosphere full of exietment.anx curiosity.It was during a induction program,so the hall was filled with students and teachers. I felt a mix of nervousness and joy while attending my first event.It became my special memory of my first day in my collage.
+**AUDITORIUM** The first time,I am visited the auditorium of my collage.It was trulg impressed by its size and design.As I entered, I saw a large stage with bright lights and a sound system that made the whole space feel professional and grand. The seating arrangement was well organizedand the atmosphere full of exietment.anx curiosity.It was during a induction program,so the hall was filled with students and teachers. I felt a mix of nervousness and joy while attending my first event.It became my special memory of my first day in my collage.[img](![20250808_143014](https://github.com/user-attachments/assets/c9471838-c71b-407c-acc9-c143baae5b78)README.md)
+
 
 During the first session was taken by **Taranpreet Kaur**,a senior student  took the responsibility of informative and helpful session. The senior began by warmly welcoming us and sharing a few words about collage life. Then, one by one,they introduce each teacher,mentioning their name,subject and some intresting facts about them.The way of senior spoken was confident and respectful which maxe the session engaging and I appreciated the effoet of senior made to guide us in such a friendly ways
 
