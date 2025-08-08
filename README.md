@@ -101,6 +101,18 @@ This **physics lecture** was taken by **Jaspreet Singh**. He told us some basic 
 
 This **p2p lecture** was taken by our senior. He explained the concept in very simple way,start from the basics and then moving to examples that made everything clear
 
+## Day 7
+### Date 7August,2025
+
+### Time 9.30am to 10.30am
+This **Physics lecture** was taken by **S.Jaspreet Sir**.In this lecture sir explained the difference between scaler and vector quantity and field.He told us that scaler has only magnitude,while vector have both magnitude as well as direction.After that he also taught about dell operator.
+
+### Time 12.30pm to 2.00pm
+This lecture was taken by **S.Lakhvir Singh**.He is the **Incharge of CML**.
+In this lecture,He told us about his learning group. He also told about swayam app,which is very helpful us and He encourage us to praticpate in CML learning.
+
+### Time 2.00pm to 3.00pm 
+This lecture was taken by **Jasvir Singh Gerawal**In this lecture,we all listining the kirtan and also seeing the standup comandy,which is very funny. we all enjoy that comandy.
 
 
 
