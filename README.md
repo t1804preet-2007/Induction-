@@ -84,9 +84,14 @@ This lecture was taken by**Mrs.SHAFFY MAKKAR**.on the topic of **Millets Super F
 ## Day 6
 ### Date 6 August,2025
 
-### Time 9:30am to 10:00am 
+### Time 9:30am to 10:30am 
+This lecture was taken by **Dr.PARMINDER SINGH**.Sir told us that there are 4 hostel-3 for boys and 1 for girls.approx for 1240 students.All hostels are connect with wifi facality in oue collage. There are one central library, 3 computer labs and 17 playground.There are 3 canteens and one ststionary shop. He told us all information about the campus,which is very helpful for us.
 
-This lecture was taken by **Dr.PARMINDER SINGH**.Sir told us that there are 4 hostel-3 for boys and 1 for girls.approx for 1240 students.All hostels are connect with wifi facality in oue collage. There are one central library, 3 computer labs and 17 playground.There are 3 canteens and one ststionary shop. He told us total about the campus,which is very helpful for us.
+### Time 10:30am to 12:30pm
+This lecture was taken by **Mr.MANPREET SINGH**. Sir told us about **FITNESS FOR ENGINESS**. Sir told us that fitness means keep ing our body healthy and active.We should do some form of exersice every daylike walking,jogging,yoga and playing sports. Along with exersice,eating a balanced diet with fruit, vegetables,and enough water is very important.Fitness not only keeps our bodystrong but also helps our mind stay fresh and stress free
+
+
+.,
 
 
 
