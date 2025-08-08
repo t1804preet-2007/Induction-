@@ -114,30 +114,11 @@ In this lecture,He told us about his learning group. He also told about swayam a
 ### Time 2.00pm to 3.00pm 
 This lecture was taken by **Jasvir Singh Gerawal**In this lecture,we all listining the kirtan and also seeing the standup comandy,which is very funny. we all enjoy that comandy.
 
+## Day 8
+## Date 8 August,2025
 
-
-.,
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-33
+### Time 10.00am to 12.00pm
+This lecture was taken by Jaswinder Singh,in carpenters workshop.He gave us some knowledge about wood.He told us some different kinds of woods,their uses and how we choose the right wood for different porpose.
 
 
 
