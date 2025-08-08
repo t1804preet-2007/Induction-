@@ -1,4 +1,4 @@
-# Induction-
+![20250808_145132](https://github.com/user-attachments/assets/605d21b1-6c8e-43e6-8ddd-d0ecb6970f9c)# Induction-
 Name Taranpreet Kaur.      
 Branch Information Technology 1st year 
 ## Day1
@@ -129,6 +129,7 @@ This lecture was taken by **Jasvir Singh Gerawal**In this lecture,we all listini
 
 ### Time 10.00am to 12.00pm
 This lecture was taken by Jaswinder Singh,in carpenters workshop.He gave us some knowledge about wood.He told us some different kinds of woods,their uses and how we choose the right wood for different porpose.
+[img](![Uploading20250808_145132.jpg…]()README.md)
 
 
 
@@ -145,4 +146,3 @@ This lecture was taken by Jaswinder Singh,in carpenters workshop.He gave us some
 
 
 
-3
