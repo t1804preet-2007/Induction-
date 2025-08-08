@@ -1,4 +1,4 @@
-![20250808_145132](https://github.com/user-attachments/assets/605d21b1-6c8e-43e6-8ddd-d0ecb6970f9c)# Induction-
+# Induction-
 Name Taranpreet Kaur.      
 Branch Information Technology 1st year 
 ## Day1
