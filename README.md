@@ -87,8 +87,21 @@ This lecture was taken by**Mrs.SHAFFY MAKKAR**.on the topic of **Millets Super F
 ### Time 9:30am to 10:30am 
 This lecture was taken by **Dr.PARMINDER SINGH**.Sir told us that there are 4 hostel-3 for boys and 1 for girls.approx for 1240 students.All hostels are connect with wifi facality in oue collage. There are one central library, 3 computer labs and 17 playground.There are 3 canteens and one ststionary shop. He told us all information about the campus,which is very helpful for us.
 
-### Time 10:30am to 12:30pm
-This lecture was taken by **Mr.MANPREET SINGH**. Sir told us about **FITNESS FOR ENGINESS**. Sir told us that fitness means keep ing our body healthy and active.We should do some form of exersice every daylike walking,jogging,yoga and playing sports. Along with exersice,eating a balanced diet with fruit, vegetables,and enough water is very important.Fitness not only keeps our bodystrong but also helps our mind stay fresh and stress free
+### Time 10:30am to 12:00pm
+This lecture was taken by **Mr.MANPREET SINGH**. Sir told us about **FITNESS FOR ENGINESS**. Sir told us that fitness means keep ing our body healthy and active.We should do some form of exersice every daylike walking,jogging,yoga and playing sports. Along with exersice,eating a balanced diet with fruit, vegetables,and enough water is very important.Fitness not only keeps our bodystrong but also helps our mind stay fresh and stress free.
+
+### Time 12.00pm to 12.30pm
+This lecture was taken by **P.S.Brigadier Cheema Sir**. He is the higher rank officer of **NCC**.He talked with us in friendly way.
+He told us that dicipline courage, and honesty are very important in life. He also told us to work together like a team becausd we stronge whwn we help each other.He also courage to join in NCC.
+
+### Time1.30pm to 2.30pm
+This **physics lecture** was taken by **Jaspreet Singh**. He told us some basic of physics which we studies in our collage. and he also told us the meaning of our chapter.and that lecture was very intresting for me.
+
+### Time 2.30pm to 3.30pm
+
+This **p2p lecture** was taken by our senior. He explained the concept in very simple way,start from the basics and then moving to examples that made everything clear
+
+
 
 
 .,
