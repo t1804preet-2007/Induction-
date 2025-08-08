@@ -64,14 +64,19 @@ In this time, we listening the **Dr. Priya Darshni Mam's lecture** in auditorium
 Mam told us how to maintain and balance the right understanding, physical facility and relationship.She relised us what was the inportant for us.Money ,Familily, job and happiness all was important for us in our life.we couldnot live without all of us.So, we want to mantain all of these in our life.
 
 ## Day 4
-### Date 3 August,2025
+### Date 4 August,2025
 
 ### Time 8:30am to 9:30pm
 This session was taken by **Causmic Club**. In this session, club members tell us about his club. What they are all doing? What is the role of club in this collage? Which compitition was arranged by this club and Which function was organised by this club.They are all tells about the club members.This session arevery intresting for me.
 
 ### Time 9:30am to 10:30pm
-This lecture was taken by **Dr.Randir Singh**.on **conduct of examination.**Sir told us about the exam. How we conduct our exam in our future.He suggested us that we cannnot take any supply in our exam. if we take any supply, so, we face many problems in our life.
+This lecture was taken by **Dr.Randir Singh**.on **conduct of examination**.Sir told us about the exam. How we conduct our exam in our future.He suggested us that we cannnot take any supply in our exam. if we take any supply, so, we face many problems in our life.
 
+## Day 5
+### Date 5 August,2025
+
+### Time 1:30pm to 2:30pm 
+This lecture was taken by **GAUTAM MURRIAN**,who is the senoir student of mechnical engg.He told us about motor sports car,I thought that it was very easy but it was actually very difficult.He told us some facts of motor sports car about that car weight,speed,engine and wheels.
 
 
 
