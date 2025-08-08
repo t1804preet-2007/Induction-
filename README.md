@@ -38,10 +38,12 @@ Then after listening to all the lecture.We went to our respective department.The
 ### 1 August,2025
 
 ### Time 9:00am to 10:00am
-In this time, I had given the **English proficiency test** 
+In this time, I had given the **English proficiency test** [img](![Screenshot_20250808_143206_Google](https://github.com/user-attachments/assets/0202732d-eece-405f-8b82-437e852c7469)README.md)
+
 
 ### Time 10:00am to 11:00am
-In this time, I hax given the **Math proficiency test**
+In this time, I hax given the **Math proficiency test**[img](![Screenshot_20250808_143226_Google](https://github.com/user-attachments/assets/917e8bc7-f35c-48dc-a9d9-f09b641bb22b)REABME.md)
+
 
 ### Time 11:00am to 12:00 pm 
 It was break time, During this time, I explored the some beautiful places of collage with my friend
@@ -58,7 +60,8 @@ During this time,we listening the **Mr. Rakesh Kumar**in auditorium.Sir told us 
 ### Date 2 August,2025
 
 ### Time 9:00am to 11:00am
-This lecture was taken by **Dr.Jaswindewr Singh**,who is incharge of **IAPT**.This lecture was very intresting for me and my friends.He had a persenol labs on wheels of mathamatics and science.He got many award on state and national level fron govt. He told us many comman facts of science and he teach us math in very intresting way and we enjoyvery much in this lecture.
+This lecture was taken by **Dr.Jaswindewr Singh**,who is incharge of **IAPT**.This lecture was very intresting for me and my friends.He had a persenol labs on wheels of mathamatics and science.He got many award on state and national level fron govt. He told us many comman facts of science and he teach us math in very intresting way and we enjoyvery much in this lecture.[img](![20250802_105453](https://github.com/user-attachments/assets/18d21457-ef6d-4c95-b6e2-f3b6ce959916)README.md)
+
 
 ### Time 11:00pm to 12:00pm
 In this time, we listening the **Dr. Priya Darshni Mam's lecture** in auditorium.
@@ -77,10 +80,12 @@ This lecture was taken by **Dr.Randir Singh**.on **conduct of examination**.Sir 
 ### Date 5 August,2025
 
 ### Time 1:30pm to 3:00pm 
-This lecture was taken by **GAUTAM MURRIAN**,who is the senoir student of mechnical engg.He told us about motor sports car,I thought that it was very easy but it was actually very difficult.He told us some facts of motor sports car about the car weight,speed,engine and wheels.
+This lecture was taken by **GAUTAM MURRIAN**,who is the senoir student of mechnical engg.He told us about motor sports car,I thought that it was very easy but it was actually very difficult.He told us some facts of motor sports car about the car weight,speed,engine and wheels.[img](![20250804_104500](https://github.com/user-attachments/assets/c4e85eb6-aa12-458d-9f27-537085d026b9)README.md)
+
 
 ### Time 3:00pm to 4:30pm
-This lecture was taken by**Mrs.SHAFFY MAKKAR**.on the topic of **Millets Super Foods**.She told us that millets are a type of food that we can eat regular.She told us that millets are small, nutritions,grains such as bajra ragi,jowar and little millets they are rich in fibre,vitamin and minerals which give us energy,keep us full for longer,and help in proper digestion.Millets are good for heart,strength the bones and control blood suger level.
+This lecture was taken by**Mrs.SHAFFY MAKKAR**.on the topic of **Millets Super Foods**.She told us that millets are a type of food that we can eat regular.She told us that millets are small, nutritions,grains such as bajra ragi,jowar and little millets they are rich in fibre,vitamin and minerals which give us energy,keep us full for longer,and help in proper digestion.Millets are good for heart,strength the bones and control blood suger level.[img](![20250805_145547](https://github.com/user-attachments/assets/c90b41c2-a151-4313-bb1f-c25543f4ffe6)README.md)
+
 
 ## Day 6
 ### Date 6 August,2025
@@ -89,11 +94,13 @@ This lecture was taken by**Mrs.SHAFFY MAKKAR**.on the topic of **Millets Super F
 This lecture was taken by **Dr.PARMINDER SINGH**.Sir told us that there are 4 hostel-3 for boys and 1 for girls.approx for 1240 students.All hostels are connect with wifi facality in oue collage. There are one central library, 3 computer labs and 17 playground.There are 3 canteens and one ststionary shop. He told us all information about the campus,which is very helpful for us.
 
 ### Time 10:30am to 12:00pm
-This lecture was taken by **Mr.MANPREET SINGH**. Sir told us about **FITNESS FOR ENGINESS**. Sir told us that fitness means keep ing our body healthy and active.We should do some form of exersice every daylike walking,jogging,yoga and playing sports. Along with exersice,eating a balanced diet with fruit, vegetables,and enough water is very important.Fitness not only keeps our bodystrong but also helps our mind stay fresh and stress free.
+This lecture was taken by **Mr.MANPREET SINGH**. Sir told us about **FITNESS FOR ENGINESS**. Sir told us that fitness means keep ing our body healthy and active.We should do some form of exersice every daylike walking,jogging,yoga and playing sports. Along with exersice,eating a balanced diet with fruit, vegetables,and enough water is very important.Fitness not only keeps our bodystrong but also helps our mind stay fresh and stress free.[img](![Screenshot_20250806_171249_Instagram](https://github.com/user-attachments/assets/1b5c05f0-fdf0-4142-b731-00ed69a8efbb)README.md)
+
 
 ### Time 12.00pm to 12.30pm
 This lecture was taken by **P.S.Brigadier Cheema Sir**. He is the higher rank officer of **NCC**.He talked with us in friendly way.
-He told us that dicipline courage, and honesty are very important in life. He also told us to work together like a team becausd we stronge whwn we help each other.He also courage to join in NCC.
+He told us that dicipline courage, and honesty are very important in life. He also told us to work together like a team becausd we stronge whwn we help each other.He also courage to join in NCC.[img](![20250806_120545](https://github.com/user-attachments/assets/a02b3cee-690f-4e0b-87aa-f0cbe54cf85e)README.md)
+
 
 ### Time1.30pm to 2.30pm
 This **physics lecture** was taken by **Jaspreet Singh**. He told us some basic of physics which we studies in our collage. and he also told us the meaning of our chapter.and that lecture was very intresting for me.
@@ -110,10 +117,12 @@ This **Physics lecture** was taken by **S.Jaspreet Sir**.In this lecture sir exp
 
 ### Time 12.30pm to 2.00pm
 This lecture was taken by **S.Lakhvir Singh**.He is the **Incharge of CML**.
-In this lecture,He told us about his learning group. He also told about swayam app,which is very helpful us and He encourage us to praticpate in CML learning.
+In this lecture,He told us about his learning group. He also told about swayam app,which is very helpful us and He encourage us to praticpate in CML learning.[img](![20250807_125038](https://github.com/user-attachments/assets/1f7ef545-71ba-4551-b281-85a2cd7eac85)README.md)
+
 
 ### Time 2.00pm to 3.00pm 
-This lecture was taken by **Jasvir Singh Gerawal**In this lecture,we all listining the kirtan and also seeing the standup comandy,which is very funny. we all enjoy that comandy.
+This lecture was taken by **Jasvir Singh Gerawal**In this lecture,we all listining the kirtan and also seeing the standup comandy,which is very funny. we all enjoy that comandy.[img](![20250807_143419](https://github.com/user-attachments/assets/1941fc1e-c839-4f3b-ace6-daa60525875f)README.md)
+
 
 ## Day 8
 ## Date 8 August,2025
