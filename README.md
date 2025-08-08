@@ -75,8 +75,41 @@ This lecture was taken by **Dr.Randir Singh**.on **conduct of examination**.Sir 
 ## Day 5
 ### Date 5 August,2025
 
-### Time 1:30pm to 2:30pm 
-This lecture was taken by **GAUTAM MURRIAN**,who is the senoir student of mechnical engg.He told us about motor sports car,I thought that it was very easy but it was actually very difficult.He told us some facts of motor sports car about that car weight,speed,engine and wheels.
+### Time 1:30pm to 3:00pm 
+This lecture was taken by **GAUTAM MURRIAN**,who is the senoir student of mechnical engg.He told us about motor sports car,I thought that it was very easy but it was actually very difficult.He told us some facts of motor sports car about the car weight,speed,engine and wheels.
+
+### Time 3:00pm to 4:30pm
+This lecture was taken by**Mrs.SHAFFY MAKKAR**.on the topic of **Millets Super Foods**.She told us that millets are a type of food that we can eat regular.She told us that millets are small, nutritions,grains such as bajra ragi,jowar and little millets they are rich in fibre,vitamin and minerals which give us energy,keep us full for longer,and help in proper digestion.Millets are good for heart,strength the bones and control blood suger level.
+
+## Day 6
+### Date 6 August,2025
+
+### Time 9:30am to 10:00am 
+
+This lecture was taken by **Dr.PARMINDER SINGH**.Sir told us that there are 4 hostel-3 for boys and 1 for girls.approx for 1240 students.All hostels are connect with wifi facality in oue collage. There are one central library, 3 computer labs and 17 playground.There are 3 canteens and one ststionary shop. He told us total about the campus,which is very helpful for us.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+33
+
+
 
 
 
