@@ -131,10 +131,10 @@ This lecture was taken by **Jasvir Singh Gerawal**In this lecture,we all listini
 This lecture was taken by Jaswinder Singh,in carpenters workshop.He gave us some knowledge about wood.He told us some different kinds of woods,their uses and how we choose the right wood for different porpose.
 [img](![Uploading20250808_145132.jpg…]()README.md)
 
+## Day9
+## Date 11 August,2025
 
-
-
-
+### Time 8.30am to 9.30am
 
 
 
