@@ -135,7 +135,7 @@ This lecture was taken by Jaswinder Singh,in carpenters workshop.He gave us some
 ## Date 11 August,2025
 
 ### Time 8.30am to 9.30am
-
+This lecture was taken by the senior**Ishmeet Singh and Kusum**.
 
 
 
