@@ -135,7 +135,9 @@ This lecture was taken by Jaswinder Singh,in carpenters workshop.He gave us some
 ## Date 11 August,2025
 
 ### Time 8.30am to 9.30am
-This lecture was taken by the senior**Ishmeet Singh and Kusum**.
+This lecture was taken by our senior**Ishmeet Singh and Kusum**.In this lecture we taught about Canvas. We learned how to make our pamphlets and how to create our logo.
+
+### Time 9.30am to 11.30am
 
 
 
