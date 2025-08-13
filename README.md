@@ -135,10 +135,16 @@ This lecture was taken by Jaswinder Singh,in carpenters workshop.He gave us some
 ## Date 11 August,2025
 
 ### Time 8.30am to 9.30am
-This lecture was taken by our senior**Ishmeet Singh and Kusum**.In this lecture we taught about Canvas. We learned how to make our pamphlets and how to create our logo.
+This lecture was taken by our senior**Ishmeet Singh and Kusum**.In this lecture we taught about Canvas. We learned how to make our pamphlets and how to create our logo.We got many other information.
 
 ### Time 9.30am to 11.30am
+This **physics lecture** was taken by **Randhir Sir**.In this lecture, we started a very intresting and new unit **Laser**.
 
+### Time 11.30am to 12.30pm
+This **P2P lecture** was taken by **Maninder Mam**.In this time, Mam took the introduction of all student and She gave basic knowledge of P2P lecture.
+
+### Time 1.30pm to 3.30pm
+This **Manufacturing lecture** was taken by **Jaswinder Sir**.In this lecture 
 
 
 
