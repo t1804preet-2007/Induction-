@@ -149,7 +149,10 @@ This **Manufacturing lecture** was taken by **Jaswinder Sir**.In this lecture,We
 ## Day10
 ## Date 12 August,2025
 
-### Time 
+### Time 8.30am to 9.30am 
+At this time,we were in physics lab.Sir gave us practical notebook and also told us about the rule of the lab. How we will perform the experiment and what will have to do next time when we come.
+
+### Time 9.30am to 10.30am
 
 
 
