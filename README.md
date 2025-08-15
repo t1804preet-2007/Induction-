@@ -174,7 +174,17 @@ In this **Physics lecture**,**Randhir Sir** explained the half topic of **Einste
 ## Date 14 August,2025
 
 ### Time 8.30am to 10.30am 
+This **Engg. Drawing and graphics lecture** was taken by **Jagjit Mam**.
+In this lecture,Mam told us how to write alphabats on Big Graph Sheet and what ratio we should take in our drawing.
 
+### Time 10.30am to 11.30am 
+This **Math lecture** was taken by **Neeraj Sir**.Sir told us about limits and where and how we used limits in Math.
+
+### Time 12.30pm to 1.30pm 
+This **Economics lecture** was taken by **Sanjam Kaur**. In this lecture,Mam expalined the various defination and She told us how to applied the economics in our life.
+
+### Time 1.30pm to 2.30pm 
+This **Math lecture** was taken by **D.S.Phthania**.In this lecture, Sir told us which chapter we study and which book we wanted in this semester.
 
 
 
