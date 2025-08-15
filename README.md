@@ -173,7 +173,8 @@ In this **Physics lecture**,**Randhir Sir** explained the half topic of **Einste
 ## Day 12
 ## Date 14 August,2025
 
-### Time 8.30am to
+### Time 8.30am to 10.30am 
+
 
 
 
