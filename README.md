@@ -144,8 +144,12 @@ This **physics lecture** was taken by **Randhir Sir**.In this lecture, we starte
 This **P2P lecture** was taken by **Maninder Mam**.In this time, Mam took the introduction of all student and She gave basic knowledge of P2P lecture.
 
 ### Time 1.30pm to 3.30pm
-This **Manufacturing lecture** was taken by **Jaswinder Sir**.In this lecture 
+This **Manufacturing lecture** was taken by **Jaswinder Sir**.In this lecture,We taught a how to make a half lap joint. 
 
+## Day10
+## Date 12 August,2025
+
+### Time 
 
 
 
