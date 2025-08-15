@@ -149,11 +149,31 @@ This **Manufacturing lecture** was taken by **Jaswinder Sir**.In this lecture,We
 ## Day10
 ## Date 12 August,2025
 
-### Time 8.30am to 9.30am 
+### Time 8.30am to 10.30am 
 At this time,we were in physics lab.Sir gave us practical notebook and also told us about the rule of the lab. How we will perform the experiment and what will have to do next time when we come.
 
-### Time 9.30am to 10.30am
+### Time 10.30am to 12.30am
+This **Engg. Drawing and Graphics lecture** was taken by **Jagjit Kaur**.In this lecture,Mam told us about some basic knowledge of drawing.
 
+### Time 1.30pm to 2.30pm
+This **Economics lecture** was taken by **Sanjam Kaur**.In this lecture,Mam told us about the meaning of economics and father of economics and She gave the bacis knowledge of economics.
+
+### Time2.30pm to 3.30pm
+This **physics lecture** was taken by **Randhir Sir**.In this lectire,Sir explained us about the **Einstein Theory of Radiation**.
+
+## Day 11
+## Date 13 August,2025
+
+### Time 8.30am to 10.30am
+This **Manufacturing lecture** was taken by **Jaswinder Sir**.In this lecture,Sir us about how to make **Simple Mortise and Tenon Joint**
+
+### Time 10.30am to 11.30am
+In this **Physics lecture**,**Randhir Sir** explained the half topic of **Einstein Theory of Radiation**.
+
+## Day 12
+## Date 14 August,2025
+
+### Time 8.30am to
 
 
 
