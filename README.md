@@ -186,6 +186,24 @@ This **Economics lecture** was taken by **Sanjam Kaur**. In this lecture,Mam exp
 ### Time 1.30pm to 2.30pm 
 This **Math lecture** was taken by **D.S.Phthania**.In this lecture, Sir told us which chapter we study and which book we wanted in this semester.
 
+## Day13
+## Date 18August,2025
+
+### Time 9.30am to 10.30am
+This **physics lecture** was taken by **Randhir Sir**.In this lecture,sir taught about the **derivation of einstein theory of radiation**
+
+### Time 10.30am to 12.30pm
+This **P2Plecture** was taken by **Maninder Mam**.In this lectute mam told about **computer memory and output unit**.
+
+### Time 1.30pm to 3.30pm
+This Manufacturing lecture was taken by Jaswinder Sir. In this lecture, sir told us how to make joint with our own hands. 
+
+## Day14 
+## Date 19 August,2025
+
+### Time 8.30am to 10.30 am
+This physics lab was taken by Jaspreet Sir. In this lab,Sir told us how to do experiment in lab and how to use apperatus.
+
 
 
 
