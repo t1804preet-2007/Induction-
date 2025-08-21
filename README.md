@@ -205,7 +205,9 @@ This Manufacturing lecture was taken by Jaswinder Sir. In this lecture, sir told
 This physics lab was taken by Jaspreet Sir. In this lab,Sir told us how to do experiment in lab and how to use apperatus.
 
 ### Time 10.30am to 12.30am
-This **Engg.Drawing lecture** was taken by **Jagjit Kaur**.In this lecture,Mam told us about **chapter Dimension**.
+This **Engg.Drawing lecture** was taken by **Jagjit Kaur**.In this lecture,Mam told us about **chapter Dimension**.and how we use dimension on our drawing.
+
+
 
 
 
