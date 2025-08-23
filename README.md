@@ -193,10 +193,10 @@ This **Math lecture** was taken by **D.S.Phthania**.In this lecture, Sir told us
 This **physics lecture** was taken by **Randhir Sir**.In this lecture,sir taught about the **derivation of einstein theory of radiation**
 
 ### Time 10.30am to 12.30pm
-This **P2Plecture** was taken by **Maninder Mam**.In this lectute mam told about **computer memory and output unit**.
+This **P2P lecture** was taken by **Maninder Mam**.In this lectute mam told about **computer memory and output unit**.
 
 ### Time 1.30pm to 3.30pm
-This Manufacturing lecture was taken by Jaswinder Sir. In this lecture, sir told us how to make joint with our own hands. 
+This **Manufacturing lecture** was taken by **Jaswinder Sir**. In this lecture, sir told us how to make joint with our own hands. 
 
 ## Day14 
 ## Date 19 August,2025
