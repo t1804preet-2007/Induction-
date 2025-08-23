@@ -205,7 +205,25 @@ This Manufacturing lecture was taken by Jaswinder Sir. In this lecture, sir told
 This physics lab was taken by Jaspreet Sir. In this lab,Sir told us how to do experiment in lab and how to use apperatus.
 
 ### Time 10.30am to 12.30am
-This **Engg.Drawing lecture** was taken by **Jagjit Kaur**.In this lecture,Mam told us about **chapter Dimension**.and how we use dimension on our drawing.
+This **Engg.Drawing lecture** was taken by **Jagjit Kaur**.In this lecture,Mam gave us knowledge of **chapter 3 Dimension and chapter 4 sections and convention** 
+
+### Time 
+This **economics lecture** was taken by **Sanjam Mam.** In this lecture,Mam took a small test from us.In which we learned difference between **macro and micro and normality and positive**.
+
+### Time 
+This lecture was taken by Randhir Sir. In this lecture, Sir taught us numerical and how to find N1 and N2.
+
+### Time 
+This lecture was taken by Neeraj Sir.In this lecture,Sir taught us about countinity.
+
+### Time 
+This Math lecture was taken by Sukhminder Sir. This is the first lecture by the sir in this lecture sir taught us about partial difference equation.
+
+### Time 
+This P2P lecture was taken by Maninder Mam. In this lecture,Mam taught us about compounent of computer system ,function and type of operating system.
+
+### Time 
+This Engg. Drawing lecture was taken by jaswant sir
 
 
 
