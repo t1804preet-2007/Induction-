@@ -223,7 +223,16 @@ This Math lecture was taken by Sukhminder Sir. This is the first lecture by the 
 This P2P lecture was taken by Maninder Mam. In this lecture,Mam taught us about compounent of computer system ,function and type of operating system.
 
 ### Time 
-This Engg. Drawing lecture was taken by jaswant sir
+This Engg. Drawing lecture was taken by new teacher.He taught us chapter 6 scales. and he also told us how to calculate our problems and how to drawn on sheet 
+
+### Time 
+This lecture was taken by Randhir Sir. In this lecture, Sir taught us about 2,3 and 4 layer of laser. 
+
+### Time 
+This Math lecture was taken by Sukhminder Sir. In this lecture, sir taught us about double differential equation. 
+
+### Time 
+This economics lecture was taken by Sanjam Mam.In this lecture,Mam taught us about how economics work in our daily life 
 
 
 
